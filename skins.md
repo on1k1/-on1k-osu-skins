@@ -10,3 +10,6 @@
 
 # [Aristia(Edit)](https://www.dropbox.com/s/huzv2m0xjk0tj94/Aristia%28Edit%29.osk?dl=0)
 ![](https://sun9-59.userapi.com/impf/R38aXfzxBOmXv4EkdHdgu9Z-LSrB_32r-qMnTg/VgdVEFEH834.jpg?size=1920x1080&quality=96&proxy=1&sign=2436bd54eb5dd1ef5c5d05789b738bc4&type=album)
+
+# [Molodezhiy](https://www.dropbox.com/scl/fi/02xs2djjyxkyf7s2jx0kp/twitch_tvutsuloli.osk?rlkey=oepgcr6d33h9lkbkkolgmpaw1&dl=0)
+![](https://sun3-24.userapi.com/impg/F1C9yvxni0SAluPpFkZuTLdS3Hp8-YbdnObkCg/5XTsCSWzmhg.jpg?size=1920x1080&quality=96&sign=dbf167c44ff7d7b870b54400d4e00893&type=album)
